@@ -1,4 +1,4 @@
-# Privacy Policy – Smart Receipt App
+# Privacy Policy – Smart Slip App
 
 **Effective Date**: April 13, 2025  
 **Last Updated**: April 13, 2025
